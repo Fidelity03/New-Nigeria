@@ -1,2 +1,1 @@
-# New-Nigeria
-As a youth of our great nation Nigeria, we want a new Nigeria where our voices can be heard.
+Am Obanaedo Fidelis a citizen of this great country Nigeria.I am a humble and simple person, willing to work and share my ideals with others.
